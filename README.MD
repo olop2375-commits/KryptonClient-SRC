@@ -17,3 +17,4 @@ Horribly **pasted** 1.21 donut smp cheat _(boolean auth level)_. Works with Feat
 - Meteor (+ rejects): making this client popular
 - Baritone: making this client popular
 - Krypton Devs: masterful use of AI resources and never-before-seen pasting techniques
+- Mango Man: Nigger
